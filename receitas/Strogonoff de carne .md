@@ -4,7 +4,7 @@
 
 - 500 g de carne em tiras finas filé mignon, contra-filé
 - 1 pitada de pimenta-do-reino
-- 3 colheres (sopa) de manteiga
+- 3 colheres (sopa) de manteiga 
 - meia cebola picada
 - 1 tablete de MAGGI® Caldo Carne
 - 4 colheres (sopa) de água fervente
