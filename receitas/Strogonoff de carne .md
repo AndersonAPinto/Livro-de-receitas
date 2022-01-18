@@ -13,7 +13,7 @@
 - 3 colheres (sopa) de purê de tomate
 - 1 colher (sopa) de mostarda
 - 2 colheres (sopa) de ketchup
-- 1 lata de NESTLÉ® Creme de Leite
+- 1 lata de NESTLÉ® Creme de Leite 
 
 ### Modo de preparo
 
